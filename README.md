@@ -2,7 +2,7 @@
 
 **Download and Play Terabox Videos Directly**
 
-**Telegram :** [https://telegram.me/TokenTutorial](https://telegram.me/TokenTutorial)
+**Telegram :** [https://telegram.me/TokenTut](https://telegram.me/TokenTut)
 
 
 ## Introduction
@@ -18,7 +18,7 @@ Explore the premier platform for Terabox video streaming and downloads. Our serv
 
 ## How to Use
 
-- Use our Telegram Channel for direct downloads: [https://telegram.me/TokenTutorial](https://telegram.me/TokenTutorial).
+- Use our Telegram Channel for direct downloads: [https://telegram.me/TokenTut](https://telegram.me/TokenTut).
 
 
 ## Why Choose Us?
@@ -31,8 +31,8 @@ Explore the premier platform for Terabox video streaming and downloads. Our serv
 
 Join our expanding community of Terabox video enthusiasts. Utilize our platform today to effortlessly download and enjoy your favorite videos.
 
-**Website:** [https://telegram.me/TokenTutorial](https://telegram.me/TokenTutorial)  
-**Telegram Channel:** [https://telegram.me/TokenTutorial](https://telegram.me/TokenTutorial)
+**Website:** [https://telegram.me/TokenTut](https://telegram.me/TokenTut)  
+**Telegram Channel:** [https://telegram.me/TokenTut](https://telegram.me/TokenTut)
 
 ---
 
